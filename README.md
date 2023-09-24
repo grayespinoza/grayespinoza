@@ -1,2 +1,2 @@
 ## Gray Espinoza (Grey)
-Hey! I'm Gray Espinoza, but I prefer to go by Grey; I'm a student attending California State University, Fullerton for a B.S. in Computer Science.
+Hey! I'm Gray Espinoza, but I prefer to go by Grey; I'm a student based in California, USA attending California State University, Fullerton for a Bachelor of Science in Computer Science and a Bachelor of Arts in Mathematics with a concentration in Applied Mathematics.
